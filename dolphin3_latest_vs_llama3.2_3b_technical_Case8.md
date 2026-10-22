@@ -1,0 +1,1 @@
+The United Nations has had mixed success since 2000. While it has facilitated international cooperation and peacekeeping efforts, it has also faced challenges in addressing global issues such as climate change, poverty, and inequality. The effectiveness of the UN varies depending on the specific issue and the level of commitment from its member states.
